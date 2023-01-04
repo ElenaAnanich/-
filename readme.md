@@ -7,6 +7,6 @@
 - Заниматься спортом
 - Участвую иногда в соревнованиях по бегу 
   
-  ![Мое фото](https://vk.com/ananich_elen?z=photo51480061_457240701%2Fphotos51480061)
+  ![Мое фото](https://drive.google.com/file/d/1HAOJdXvSrk6Z_xDUCczFi5q19yrGItTo/view?usp=sharing)
 
 
