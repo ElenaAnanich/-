@@ -9,7 +9,7 @@
   
   Мое фото
   
-![image](https://user-images.githubusercontent.com/120948039/210551709-8214ec65-4224-47f5-aa62-7ef2ff799ffd.png)
+![image](https://github.com/ElenaAnanich/-/blob/main/IMG_3505.JPG)
 
 
 
