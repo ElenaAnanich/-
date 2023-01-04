@@ -7,6 +7,6 @@
 - Заниматься спортом
 - Участвую иногда в соревнованиях по бегу 
   
-  ![Мое фото](https://drive.google.com/file/d/1HAOJdXvSrk6Z_xDUCczFi5q19yrGItTo/view?usp=sharing)
+
 
 
